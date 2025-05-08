@@ -4,5 +4,5 @@ I'm **Aghila**, an undergraduate physics student with an immense passion for tec
 
 I'm an ardent fan of this platform because it empowers me to create, collaborate, and share my work with the world. Although I'm just starting out, I'm learning something new every day—and all of it is driven by the hope of contributing to a better world🤍
 
->"Under the sky, under the heavens, there is but one family."  
-> —Bruce Lee🌍
+>"Stay Hungry. Stay Foolish."  
+> —Steve Jobs
